@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kalameee
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on Vortex Client
+- 💞️ I’m looking to collaborate on fucking yo mama
 - 📫 How to reach me no.
 
 <!---
